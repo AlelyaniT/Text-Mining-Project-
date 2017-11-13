@@ -24,6 +24,6 @@ Here is what I expect you to do:
 
 
 --------------
-Turki Alelyani, Ph.D. Candidate 
+Turki Alelyani, Ph.D. Candidate, 
 E-mail : talelyan@stevens.edu 
 
